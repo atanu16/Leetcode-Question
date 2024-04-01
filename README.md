@@ -1,4 +1,3 @@
-# Lul
 
 I found the following on the internet.
 
